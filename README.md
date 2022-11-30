@@ -1,1 +1,1 @@
-# Baniday2
+# Galeria.github.io
